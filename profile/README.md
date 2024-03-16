@@ -3,6 +3,10 @@
 Diretta Sinner-Alcaraz: in palio la finale di Indian Wells e la posizione di n.2 del mondo
 Amici fuori, rivali in campo: lo spagnolo e l'italiano si sfidano per un posto in finale che per Jannik comporterebbe il sorpasso nel ranking
 
+<strong> 🔴📺DIRETTA📲👉 <a href="https://onlinestreamshd.com/tennis/" rel="nofollow"> JANNIK SINNER - CARLOS ALCARAZ IN DIRETTA STREAMING </a> </strong>
+
+<strong> 🔴📺DIRETTA📲👉️ <a href="https://onlinestreamshd.com/tennis/" rel="nofollow"> JANNIK SINNER - CARLOS ALCARAZ IN DIRETTA STREAMING </a> </strong>
+
 A Indian Wells la semifinale tra Jannik Sinner e Carlos Alcaraz oltre al posto in finale vale la posizione di numero 2 del mondo. Alcaraz gioca per difenderla, Sinner con una vittoria può superarlo.
 
 Indian Wells, la semifinale Sinner-Alcaraz  DIRETTA
